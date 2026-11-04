@@ -1,0 +1,1 @@
+# safety_law_ethics
